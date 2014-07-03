@@ -1,4 +1,5 @@
 # Grandma Millie’s Beans
+I got this recipe from the amazing [Kelly Goddard](https://twitter.com/pandapants).
 
 ### Ingredients:
 * 16 oz can lima beans
