@@ -7,4 +7,4 @@
 - 1/5 Tbsp granulated honey*
 - 2 tsp dark brown sugar
 
-* Granulated honey is a specialty item found @ Williams - Sonoma
+**Granulated honey is a specialty item found @ Williams - Sonoma**
